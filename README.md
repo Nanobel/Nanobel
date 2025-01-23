@@ -1,1 +1,1 @@
-<p align = "center"> <img src = "![치이카와](https://github.com/user-attachments/assets/019bdc8a-6403-4104-a14d-cf1af406d519)"> </p>
+<img width="1536" alt ="![Image]" src="https://github.com/user-attachments/assets/dcf83586-1846-4aed-bcea-1d0778915d9f">
